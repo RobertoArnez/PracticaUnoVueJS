@@ -1,4 +1,4 @@
-INTEGRANTES 
+INTEGRANTES
 
 Christian Roberto Arnez Serrano
 
